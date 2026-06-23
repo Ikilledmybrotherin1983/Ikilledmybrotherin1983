@@ -34,3 +34,8 @@ Michael Afton IRL, primary irl. Other kins/irls:
 2. Alois Trancy [questioning irl, Kin.] Kuroshitsji/Black Butler
 
   3.Kieran Valentine. [Kin] , Monster High    generation 1, Why do ghouls fall in love? - Comic valentine .
+
+
+4. [John] Finney Blake. [Kin] , The Black Phone 1&2
+
+5. Huckleberry Pie. [Kin] Strawberry shortcake 1980s.
