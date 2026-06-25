@@ -1,6 +1,9 @@
 i dont know what im doing..
 
 
+
+Everyday i wake up with morning sickness because I'm pregnant with the truth.<3
+
 i block freely, like bio said anyone can int and in look for mainly FNaF sourcemates ^_^
 
 
