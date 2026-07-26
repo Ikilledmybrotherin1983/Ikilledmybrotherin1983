@@ -1,6 +1,9 @@
 i dont know what im doing..
 
 
+hell nah i dont support incst, 
+
+
 
 i block freely, like bio said anyone can int and in look for mainly FNaF sourcemates ^_^
 
