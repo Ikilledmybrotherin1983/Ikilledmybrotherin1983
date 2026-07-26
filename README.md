@@ -1,7 +1,7 @@
 i dont know what im doing..
 
 
-hell nah i dont support incst, aftoncst dni😭😭 i don't ship it dont believe anyone who says otherwise 
+hell nah i dont support incst, aftoncst dni😭😭 i don't ship it dont believe anyone who says otherwise  , dni if you associate with ikilledthosekidsin1985😭😭 i didnt spread false rumors sigh
 
 
 
